@@ -6,3 +6,5 @@
 - [第四次作业](https://www.zybuluo.com/Physics-CD/note/587091)<br>
 - [第五次作业](https://www.zybuluo.com/Physics-CD/note/597105)<br>
 - [第六次作业](https://www.zybuluo.com/Physics-CD/note/607628)<br>
+- [第七次作业](https://www.zybuluo.com/Physics-CD/note/615770)<br>
+- [第八次作业](https://www.zybuluo.com/Physics-CD/note/615783)<br>
